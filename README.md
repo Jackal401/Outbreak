@@ -17,4 +17,4 @@ Me and my group members were taking this class online at the time, so we had to 
 Discord. Here, we met at least once per week to discuss how we were progressing with the tasks we decided to work
 on and to help each other out when there was something that we weren't sure of. We were good about asking questions
 outside of our meeting times and we each found the time to help each other out. In the end, we managed to complete a 
-playable game that had enough work done for a 5 person team. 
+playable game for our instructor and got a passing grade. 
